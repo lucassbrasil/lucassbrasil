@@ -1,4 +1,8 @@
  LUCAS GIOVANNI 👋
+ 
+ 
+ 
+ 
  Imagine Tentar Produzir um Resultado tão Consistente sem Um Sistema!
 
 <!--
